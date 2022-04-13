@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Dibbz
+- 👀 I’m interested in learning new skills and coding langauges in pursuit of a career in tech!
+- 🌱 I’m currently learning simple minecraft modding and java code
+- 💞️ I’m looking to collaborate on really any entry level projects
+- 📫 How to reach me dms on this website unless otherwise given out :)
